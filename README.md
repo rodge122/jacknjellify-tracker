@@ -1,2 +1,9 @@
-# jacknjellify-tracker
-https://static.wikia.nocookie.net/bfdirus/images/1/15/Grassywj1.webp/revision/latest?cb=20231208154622&path-prefix=ru
+![Spoilers](https://github.com/user-attachments/assets/61f6c797-0068-4507-bc72-7bcbb05dcce5)# jacknjellify-tracker
+[Uploading Spoilers.webp…]()
+
+                          
+
+
+
+Jacknjellify tracker is my biggest project. MADE FOR 3 F*CKING MONTHS
+Watch BFDI via Jacknjellify tracker or you will be eliminated!!!
