@@ -1,5 +1,7 @@
-![Spoilers](https://github.com/user-attachments/assets/61f6c797-0068-4507-bc72-7bcbb05dcce5)# jacknjellify-tracker
-[Uploading Spoilers.webp…]()
+![Spoilers](https://github.com/user-attachments/assets/61f6c797-0068-4507-bc72-7bcbb05dcce5)
+
+
+# JACKNJELLIFY TRACKER
 
                           
 
