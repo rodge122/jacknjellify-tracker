@@ -9,3 +9,4 @@
 
 Jacknjellify tracker is my biggest project. MADE FOR 3 F*CKING MONTHS
 Watch BFDI via Jacknjellify tracker or you will be eliminated!!!
+**Battle for Dream Island (BFDI) was created by twin brothers Cary and Michael Huang**
